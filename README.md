@@ -3,13 +3,13 @@
 ## Already Read
 
 1. Mistborn Era 1 – The Final Empire
+2. Mistborn Era 1 – The Eleventh Metal
+3. Mistborn Era 1 – The Well of Ascension
 
 ## Currently Reading
 
-1. Mistborn Era 1 – The Eleventh Metal
-2. Mistborn Era 1 – The Well of Ascension
-3. Mistborn Era 1 – The Hero of Ages
-4. Mistborn Era 1 – Short Story: The Traveler
+1. Mistborn Era 1 – The Hero of Ages
+2. Mistborn Era 1 – Short Story: The Traveler
 
 ## Next Up
 
