@@ -7,13 +7,13 @@
 3. Mistborn Era 1 – The Well of Ascension
 4. Mistborn Era 1 – The Hero of Ages
 5. Mistborn Era 1 – Short Story: The Traveler
+6. Elantris
+7. The Hope of Elantris
 
 ## Currently Reading
 
-1. Elantris
-2. The Hope for Elantris
-3. The Emperor's Soul
-4. White Sand Trilogy – (Latest Edition)
+1. The Emperor's Soul
+2. White Sand Trilogy – (Latest Edition)
 
 ## Next Up
 
