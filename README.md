@@ -12,8 +12,9 @@
 
 ## Currently Reading
 
-1. The Emperor's Soul
-2. White Sand Trilogy – (Latest Edition)
+1. Shadows for Silence in the Forests of Hell
+1. White Sand Trilogy – (Latest Edition)
+2. The Emperor's Soul
 
 ## Next Up
 
@@ -22,22 +23,21 @@
 
 ## Continuing Forward
 
-1. Shadows for Silence in the Forests of Hell
-2. The Stormlight Archive – Words of Radiance
-3. The Stormlight Archive – Elsecaller
-4. The Stormlight Archive – King Lopen the First of Alethkar
-5. The Stormlight Archive – Edgedancer
-6. The Stormlight Archive – Oathbringer
-7. The Stormlight Archive – Dawnshard
-8. The Stormlight Archive – Rhythm of War
-9. Mistborn Era 2 – The Alloy of Law
-10. Mistborn Era 2 – Shadows of Self
-11. Mistborn Era 2 – The Bands of Mourning
-12. Mistborn Era 2 – Secret History
-13. Mistborn Era 2 – Allomancer Jak and the Pits of Eltania
-14. Mistborn Era 2 – The Lost Metal
-15. Secret Project 1 – Tress of the Emerald Sea
-16. Secret Project 3 – Yumi and the Nightmare Painter
-17. The Stormlight Archive – Wind and Truth
-18. Secret Project 4 – The Sunlit Man
-19. Isles of Emberdark
+1. The Stormlight Archive – Words of Radiance
+2. The Stormlight Archive – Elsecaller
+3. The Stormlight Archive – King Lopen the First of Alethkar
+4. The Stormlight Archive – Edgedancer
+5. The Stormlight Archive – Oathbringer
+6. The Stormlight Archive – Dawnshard
+7. The Stormlight Archive – Rhythm of War
+8. Mistborn Era 2 – The Alloy of Law
+9. Mistborn Era 2 – Shadows of Self
+10. Mistborn Era 2 – The Bands of Mourning
+11. Mistborn Era 2 – Secret History
+12. Mistborn Era 2 – Allomancer Jak and the Pits of Eltania
+13. Mistborn Era 2 – The Lost Metal
+14. Secret Project 1 – Tress of the Emerald Sea
+15. Secret Project 3 – Yumi and the Nightmare Painter
+16. The Stormlight Archive – Wind and Truth
+17. Secret Project 4 – The Sunlit Man
+18. Isles of Emberdark
