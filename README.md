@@ -9,17 +9,17 @@
 5. Mistborn Era 1 – Short Story: The Traveler
 6. Elantris
 7. The Hope of Elantris
+8. Shadows for Silence in the Forests of Hell
+9. The Emperor's Soul
 
 ## Currently Reading
 
-1. Shadows for Silence in the Forests of Hell
 1. White Sand Trilogy – (Latest Edition)
-2. The Emperor's Soul
-
+2. Warbreaker
+   
 ## Next Up
 
-1. Warbreaker
-2. The Stormlight Archive – The Way of Kings
+1. The Stormlight Archive – The Way of Kings
 
 ## Continuing Forward
 
