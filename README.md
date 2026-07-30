@@ -11,11 +11,11 @@
 7. The Hope of Elantris
 8. Shadows for Silence in the Forests of Hell
 9. The Emperor's Soul
+10. White Sand Trilogy – (Latest Edition)
 
 ## Currently Reading
 
-1. White Sand Trilogy – (Latest Edition)
-2. Warbreaker
+1. Warbreaker
    
 ## Next Up
 
