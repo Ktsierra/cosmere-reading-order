@@ -30,10 +30,10 @@
 1. Six of the Dusk
 2. Mistborn Era 2 – Shadows of Self
 3. Mistborn Era 2 – The Bands of Mourning
-4. The Stormlight Archive – Elsecaller
-5. The Stormlight Archive – King Lopen the First of Alethkar
-6. The Stormlight Archive – Edgedancer
-7. The Stormlight Archive – Oathbringer
+4. The Stormlight Archive – Edgedancer
+5. The Stormlight Archive – Oathbringer
+6. The Stormlight Archive – Elsecaller
+7. The Stormlight Archive – King Lopen the First of Alethkar
 8. The Stormlight Archive – Dawnshard
 9. The Stormlight Archive – Rhythm of War
 10. Mistborn Era 2 – The Lost Metal
