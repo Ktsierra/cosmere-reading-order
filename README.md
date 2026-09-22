@@ -13,10 +13,12 @@
 9. The Emperor's Soul
 10. White Sand Trilogy – (Latest Edition)
 11. Warbreaker
+12. The Stormlight Archive – The Way of Kings
+13. Mistborn Era 2 – The Alloy of Law
 
 ## Currently Reading
 
-1. The Stormlight Archive – The Way of Kings
+1. Mistborn Era 2 – Allomancer Jak and the Pits of Eltania
    
 ## Next Up
 
@@ -30,14 +32,11 @@
 4. The Stormlight Archive – Oathbringer
 5. The Stormlight Archive – Dawnshard
 6. The Stormlight Archive – Rhythm of War
-7. Mistborn Era 2 – The Alloy of Law
-8. Mistborn Era 2 – Shadows of Self
-9. Mistborn Era 2 – The Bands of Mourning
-10. Mistborn Era 2 – Secret History
-11. Mistborn Era 2 – Allomancer Jak and the Pits of Eltania
-12. Mistborn Era 2 – The Lost Metal
-13. Secret Project 1 – Tress of the Emerald Sea
-14. Secret Project 3 – Yumi and the Nightmare Painter
-15. The Stormlight Archive – Wind and Truth
-16. Secret Project 4 – The Sunlit Man
-17. Isles of Emberdark
+7. Mistborn Era 2 – Shadows of Self
+8. Mistborn Era 2 – The Bands of Mourning
+9. Mistborn Era 2 – The Lost Metal
+10. Secret Project 1 – Tress of the Emerald Sea
+11. Secret Project 3 – Yumi and the Nightmare Painter
+12. The Stormlight Archive – Wind and Truth
+13. Secret Project 4 – The Sunlit Man
+14. Isles of Emberdark
