@@ -7,14 +7,15 @@
 3. Mistborn Era 1 – The Well of Ascension
 4. Mistborn Era 1 – The Hero of Ages
 5. Mistborn Era 1 – Short Story: The Traveler
-6. Elantris
-7. The Hope of Elantris
-8. Shadows for Silence in the Forests of Hell
-9. The Emperor's Soul
-10. White Sand Trilogy – (Latest Edition)
-11. Warbreaker
-12. The Stormlight Archive – The Way of Kings
-13. Mistborn Era 2 – The Alloy of Law
+6. Mistborn - Secret History
+7. Elantris
+8. The Hope of Elantris
+9. Shadows for Silence in the Forests of Hell
+10. The Emperor's Soul
+11. White Sand Trilogy – (Latest Edition)
+12. Warbreaker
+13. The Stormlight Archive – The Way of Kings
+14. Mistborn Era 2 – The Alloy of Law
 
 ## Currently Reading
 
