@@ -26,17 +26,19 @@
 
 ## Continuing Forward
 
-1. The Stormlight Archive – Elsecaller
-2. The Stormlight Archive – King Lopen the First of Alethkar
-3. The Stormlight Archive – Edgedancer
-4. The Stormlight Archive – Oathbringer
-5. The Stormlight Archive – Dawnshard
-6. The Stormlight Archive – Rhythm of War
-7. Mistborn Era 2 – Shadows of Self
-8. Mistborn Era 2 – The Bands of Mourning
-9. Mistborn Era 2 – The Lost Metal
-10. Secret Project 1 – Tress of the Emerald Sea
-11. Secret Project 3 – Yumi and the Nightmare Painter
-12. The Stormlight Archive – Wind and Truth
-13. Secret Project 4 – The Sunlit Man
-14. Isles of Emberdark
+1. Six of the Dusk
+2. Mistborn Era 2 – Shadows of Self
+3. Mistborn Era 2 – The Bands of Mourning
+4. The Stormlight Archive – Elsecaller
+5. The Stormlight Archive – King Lopen the First of Alethkar
+6. The Stormlight Archive – Edgedancer
+7. The Stormlight Archive – Oathbringer
+8. The Stormlight Archive – Dawnshard
+9. The Stormlight Archive – Rhythm of War
+10. Mistborn Era 2 – The Lost Metal
+11. Secret Project 1 – Tress of the Emerald Sea
+12. Secret Project 3 – Yumi and the Nightmare Painter
+13. The Stormlight Archive – Wind and Truth
+14. Secret Project 4 – The Sunlit Man
+15. Isles of Emberdark
+16. Fires of December
