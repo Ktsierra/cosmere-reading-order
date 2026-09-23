@@ -16,30 +16,30 @@
 12. Warbreaker
 13. The Stormlight Archive – The Way of Kings
 14. Mistborn Era 2 – The Alloy of Law
+15. Mistborn Era 2 – Allomancer Jak and the Pits of Eltania
 
 ## Currently Reading
 
-1. Mistborn Era 2 – Allomancer Jak and the Pits of Eltania
+1. The Stormlight Archive – Words of Radiance
    
 ## Next Up
-
-1. The Stormlight Archive – Words of Radiance
-
-## Continuing Forward
 
 1. Six of the Dusk
 2. Mistborn Era 2 – Shadows of Self
 3. Mistborn Era 2 – The Bands of Mourning
-4. The Stormlight Archive – Edgedancer
-5. The Stormlight Archive – Oathbringer
-6. The Stormlight Archive – Elsecaller
-7. The Stormlight Archive – King Lopen the First of Alethkar
-8. The Stormlight Archive – Dawnshard
-9. The Stormlight Archive – Rhythm of War
-10. Mistborn Era 2 – The Lost Metal
-11. Secret Project 1 – Tress of the Emerald Sea
-12. Secret Project 3 – Yumi and the Nightmare Painter
-13. The Stormlight Archive – Wind and Truth
-14. Secret Project 4 – The Sunlit Man
-15. Isles of Emberdark
-16. Fires of December
+
+## Continuing Forward
+
+1. The Stormlight Archive – Edgedancer
+2. The Stormlight Archive – Oathbringer
+3. The Stormlight Archive – Elsecaller
+4. The Stormlight Archive – King Lopen the First of Alethkar
+5. The Stormlight Archive – Dawnshard
+6. The Stormlight Archive – Rhythm of War
+7. Mistborn Era 2 – The Lost Metal
+8. Secret Project 1 – Tress of the Emerald Sea
+9. Secret Project 3 – Yumi and the Nightmare Painter
+10. The Stormlight Archive – Wind and Truth
+11. Secret Project 4 – The Sunlit Man
+12. Isles of Emberdark
+13. Fires of December
